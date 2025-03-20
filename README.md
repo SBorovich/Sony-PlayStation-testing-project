@@ -2,7 +2,7 @@
 
 
 
-![Sony-PlayStation 5](https://hips.hearstapps.com/hmg-prod/images/sony-playstation-5-gift-edition-royalty-free-image-1730824018.jpg?crop=0.669xw:1.00xh;0.195xw,0&resize=640:*)
+![Sony-PlayStation 5](https://images.scentre.pl/images/_popup_multi_00001/ps5-3gry.png)
 
 ### **We are excited to introduce our _Sony-PlayStation 5 Testing Project!_**
 
